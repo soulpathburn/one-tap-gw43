@@ -1,4 +1,4 @@
-#  
+#  one tap advanced Scripts is the best one tap Script, featuring god mode and esp. Safe and powerful for all your needs.
 
 
 
